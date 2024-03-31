@@ -1,5 +1,5 @@
 # 💫 About Me:
-📫 Reach me at yashaswiniborar@gmail.com<br>🌱 I am currently learning, how to connect my analytical and theoretical knowledge with business.<br>🤝 I’m looking to collaborate with other Data driven peoples.<br>⚡ Fun fact:  It’s impossible to hum while holding your nose (just try it!)😎
+📫 Reach me at yashaswiniborar@gmail.com<br>🌱 I am currently learning, how to connect my analytical and theoretical knowledge with business.<br>🤝 I’m looking to collaborate with other Data driven peoples.<br>🧐 I'm always looking for a better version of myself.<br>⚡ Fun fact:  It’s impossible to hum while holding your nose (just try it!)😎
 
 
 ## 🌐 Socials:
